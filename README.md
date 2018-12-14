@@ -1,0 +1,2 @@
+# evolution
+thinking&amp;diligent
