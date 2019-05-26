@@ -1,5 +1,1 @@
 # evolution
->
-## thinking&amp;diligent
->
-
